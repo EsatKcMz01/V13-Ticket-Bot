@@ -1,0 +1,1 @@
+Yn3ox V13 Ticket Bot altyapýsý
